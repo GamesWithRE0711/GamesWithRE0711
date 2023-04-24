@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @GamesWithRE0711
+- 👀 I’m interested in Pokemon/Game developing/ Youtube channel making.
+- 🌱 I’m currently learning in school
+- 💞️ I’m looking to collaborate with youtube.
+- 📫 How to reach me @GamesWithRE on youtube and tiktok.
+- lol
